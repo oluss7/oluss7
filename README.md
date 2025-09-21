@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 oluss7  <br>🤝 I’m open to collaborate with anyone! <br>💬 Ask me about anything – I’m always happy to chat.
+🔭 https://oluss.pl  <br>🤝 I’m open to collaborate with anyone! <br>💬 Ask me about anything – I’m always happy to chat.
 
 
 ## 🌐 Socials:
